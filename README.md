@@ -4,7 +4,7 @@
 
 ## Video presentation
 
-[Bloc 1 | Kayak - Video presentation](https://share.vidyard.com/watch/wu4KAETvzEQBys6gG3rtUk?)
+[Kayak - Video presentation](https://share.vidyard.com/watch/wu4KAETvzEQBys6gG3rtUk?)
 
 ## Contact
 
